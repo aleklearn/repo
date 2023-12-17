@@ -6,4 +6,4 @@
 
 **Discord**:
 
-[discord.gg/epFR2UVj8e](https://discord.gg/epFR2UVj8e)
+[discord.gg/eeePdCdvGH](https://discord.gg/eeePdCdvGH)
